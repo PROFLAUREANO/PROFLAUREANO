@@ -1,5 +1,5 @@
 - 👋 Olá, sou Professora Eliane Laureano
-- 👀 PEI Alexandre Rodrigues Nogueira
+- 👀 PEI Alexandre Rodrigues Nogueira                 
 - 🌱 Minha aula Tecnologia da Informação
 - 💞️ Trabalho com as turmas 2ª série Ensino Médio.
   
